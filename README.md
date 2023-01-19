@@ -1,0 +1,1 @@
+# technicalresources2026
